@@ -58,4 +58,4 @@ Processamento automático:
 
 ---
 
-Criado por: [Seu Nome ou Organização]
+Criado por: @huiltavaresfilho o terror dos gurus de emissões
